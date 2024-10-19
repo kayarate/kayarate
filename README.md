@@ -1,1 +1,1 @@
-öğrenmemen gereken çok şey var.
+hakkımda öğrenmemen gereken çok şey var.
